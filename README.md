@@ -114,6 +114,6 @@ Feel free to reach out if you have any questions, suggestions, or just want to c
 
 - **Email:** [ujwalr62@gmail.com](mailto:ujwalr62@gmail.com)
 - **Phone:** +91 7876754614
-- **LinkedIn:** [linkedin.com/in/Ujwal](https://www.linkedin.com/ujwal-rana-a84063348/)
+- **LinkedIn:** [linkedin.com/in/Ujwal](https://www.linkedin.com/in/ujwal-rana-a84063348/)
 
 I look forward to hearing from you!
